@@ -1,4 +1,4 @@
-## 👨🏼‍💻 Arthur Martins 👋
+## 👨🏼‍💻 Arthur Martins 
 
 **`AI engineer`**
 <!--
